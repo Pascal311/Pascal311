@@ -2,8 +2,28 @@
 
 ## Hi there 👋
 
-I am currently in 1st year of BTS SIO at Caensup St Ursule.
+I am currently in 1st year of BTS SIO at Caensup St Ursule. 
+
 I passed my bac pro Digital Systems with high honours at Condé-en-Normandie.
+
+I'm looking for a work-study placement.
+
+## Hobbies
+
+  - Sports :
+   
+    * Body-building / Street-workout 🏋️‍♂️
+
+    * Rock climbing 🏔️
+
+  - Video games 🎮
+
+  - Manga/anime 📖
+
+  
+
+
+
 <!--
 **Pascal311/Pascal311** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
