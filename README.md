@@ -2,7 +2,8 @@
 
 ## Hi there 👋
 
-
+I am currently in 1st year of BTS SIO at Caensup St Ursule.
+I passed my bac pro Digital Systems with high honours at Condé-en-Normandie.
 <!--
 **Pascal311/Pascal311** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
