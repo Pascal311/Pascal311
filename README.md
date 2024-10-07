@@ -20,6 +20,12 @@ I'm looking for a work-study placement.
 
   - Manga/anime 📖
 
+## Contact Me 📬
+
+- **Email**: [griffonpascalpro@gmail.com](mailto:griffonpascalpro@gmail.com) ✉️
+- **LinkedIn**: [Pascal.G]([https://www.linkedin.com/in/romain-quoniam-8005112b6/](https://www.linkedin.com/in/pascal-griffon-88680a2bb/)) 🔗
+
+
   
 
 
